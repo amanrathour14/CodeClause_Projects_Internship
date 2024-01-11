@@ -1,3 +1,4 @@
+![Uploading image.png…]()
 
 ## 🚀 CodeClause_Projects_Internship
 Excited to share that I've successfully completed my 𝐖𝐞𝐛 𝐃𝐞𝐯𝐞𝐥𝐨𝐩𝐦𝐞𝐧𝐭 𝐈𝐧𝐭𝐞𝐫𝐧𝐬𝐡𝐢𝐩 with Code Clause💻
